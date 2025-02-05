@@ -1,7 +1,7 @@
-# Latest RackNerd Coupon Codes for 2024 - Organized Summary of RackNerd Promotions
+# Latest RackNerd Coupon Codes for 2025 - Organized Summary of RackNerd Promotions
 
 ## RackNerd Introduction
-RackNerd introduces new deals for the New Year 2024, showcasing their commitment to expanding and enhancing their VPS hosting services. With data centers spread across multiple locations, they continue to provide reliable and high-performance hosting solutions.
+RackNerd introduces new deals for the New Year 2025, showcasing their commitment to expanding and enhancing their VPS hosting services. With data centers spread across multiple locations, they continue to provide reliable and high-performance hosting solutions.
 
 ![image](https://github.com/ballienevent/RackNerd/assets/167661625/7955e5e8-4d5d-4415-9c7f-f5f5bdc22819)
 
